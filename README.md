@@ -14,7 +14,8 @@ to the point where it's my exact skin, thank you!
 ︶︶︶જ⁀➴
 
 
-- SHIPS
+- SHIPS ![tumblr_8b7d404645beb28b80bda06e86d5eb82_5b0e51c3_100](https://github.com/user-attachments/assets/c60c40f5-f1d2-4be7-94c2-0c09bef65505)
+
 
 I love ships!
 But I don't like immitating those ships unless
