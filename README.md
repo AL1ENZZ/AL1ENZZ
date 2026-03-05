@@ -2,7 +2,7 @@
 
 ![tumblr_21f01da9533e64ae17e1169b414a4aff_3bc50366_400](https://github.com/user-attachments/assets/2cddc43c-0384-490b-b19a-685143d6b484)
 
-︶︶︶જ⁀➴
+︶︶︶︶︶︶જ⁀➴
 
 - Inspiration of my skins is okay!
 
@@ -11,7 +11,7 @@ just please refrain from copying or recreating everything
 to the point where it's my exact skin, thank you!
 
 
-︶︶︶જ⁀➴
+︶︶︶︶︶︶જ⁀➴
 
 
 - SHIPS ![tumblr_c6a978b268a615d0eb73cf42620c393d_31c6a131_75](https://github.com/user-attachments/assets/dc3645d7-b2f8-4cad-9659-08a5c7043f47)
