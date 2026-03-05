@@ -7,7 +7,6 @@
 
 - INSPIRATION  ![tumblr_6e4c106a9af898409d18aa10eb672d35_c6a59559_75](https://github.com/user-attachments/assets/012e3dbb-d9e4-4f42-a1d5-21fb5a9ae60c)
 
-
 You can take inspiration of my skins!
   
 just please refrain from copying or recreating everything
@@ -17,9 +16,6 @@ to the point where it's my exact skin, thank you!
 .
 
 - SHIPS ![tumblr_c6a978b268a615d0eb73cf42620c393d_31c6a131_75](https://github.com/user-attachments/assets/dc3645d7-b2f8-4cad-9659-08a5c7043f47)
-
-
-
 
 I love ships!
 
