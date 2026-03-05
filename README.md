@@ -2,6 +2,11 @@
 
   ![fdssssssa](https://github.com/user-attachments/assets/1faadea7-d01e-495c-ab4e-096ac48e5338)
 
+
+
+
+![ducks-good-omens](https://github.com/user-attachments/assets/9489f367-f61b-4a61-8e41-e4115e8614f6)
+
 ![ffsd](https://github.com/user-attachments/assets/a94cbde9-91f5-4dd1-88e0-8b2bba230e7e)![fxfgd](https://github.com/user-attachments/assets/79600de7-711a-4952-a6db-c2a2ba6b353d)![tumblr_36233062ca540ca0c76437fe61a2191b_9d6e085c_250](https://github.com/user-attachments/assets/01b54629-d085-4a12-953a-1d7e87a5112b)
 
 
