@@ -22,7 +22,9 @@ to the point where it's my exact skin, thank you!
 
 
 I love ships!
+
 But I don't like doing Ship stuff with strangers
+
 I only feel confortable doing Ships with my Partner!
 
 
