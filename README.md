@@ -2,7 +2,6 @@
 
 ![tumblr_21f01da9533e64ae17e1169b414a4aff_3bc50366_400](https://github.com/user-attachments/assets/2cddc43c-0384-490b-b19a-685143d6b484)
 
-<img width="2048" height="164" alt="tumblr_c5a629b0aa5b6c284a3aa3f9af2a57a9_586a898c_2048" src="https://github.com/user-attachments/assets/18259b69-b437-4f61-bdd6-064f17a0e09b" />
 
 
 
@@ -11,9 +10,6 @@
 just please refrain from copying or recreating everything
 
 to the point where it's my exact skin, thank you!
-
-
-<img width="1280" height="147" alt="tumblr_34176cd6ec16aa4b8167d784e7fc1caf_34d991ec_1280" src="https://github.com/user-attachments/assets/4f78d61a-6163-459d-91f7-cf07d23d8717" />
 
 
 
