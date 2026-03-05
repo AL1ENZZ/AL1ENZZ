@@ -2,7 +2,8 @@
 
 ![tumblr_21f01da9533e64ae17e1169b414a4aff_3bc50366_400](https://github.com/user-attachments/assets/2cddc43c-0384-490b-b19a-685143d6b484)
 
-︶︶︶︶︶︶જ⁀➴
+<img width="1280" height="147" alt="tumblr_34176cd6ec16aa4b8167d784e7fc1caf_34d991ec_1280" src="https://github.com/user-attachments/assets/0adefa5e-fe9a-4111-8bab-45830df315ab" />
+
 
 - Inspiration of my skins is okay!
 
@@ -11,7 +12,8 @@ just please refrain from copying or recreating everything
 to the point where it's my exact skin, thank you!
 
 
-︶︶︶︶︶︶જ⁀➴
+<img width="1280" height="147" alt="tumblr_34176cd6ec16aa4b8167d784e7fc1caf_34d991ec_1280" src="https://github.com/user-attachments/assets/4f78d61a-6163-459d-91f7-cf07d23d8717" />
+
 
 
 - SHIPS ![tumblr_c6a978b268a615d0eb73cf42620c393d_31c6a131_75](https://github.com/user-attachments/assets/dc3645d7-b2f8-4cad-9659-08a5c7043f47)
