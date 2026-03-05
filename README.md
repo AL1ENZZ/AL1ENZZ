@@ -2,7 +2,7 @@
 
 ![tumblr_21f01da9533e64ae17e1169b414a4aff_3bc50366_400](https://github.com/user-attachments/assets/2cddc43c-0384-490b-b19a-685143d6b484)
 
-- Ispiration of my skins is okay!
+- Inspiration of my skins is okay!
 
 just please refrain from copying or recreating everything
 
