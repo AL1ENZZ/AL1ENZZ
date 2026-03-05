@@ -14,7 +14,8 @@ to the point where it's my exact skin, thank you!
 ︶︶︶જ⁀➴
 
 
-- SHIPS![tumblr_4fa34447b110ce611c0c109a476417fd_72aac4a2_75](https://github.com/user-attachments/assets/aa3260f9-b0c6-49a4-b4eb-29aa298d1b2e)
+- SHIPS ![tumblr_c6a978b268a615d0eb73cf42620c393d_31c6a131_75](https://github.com/user-attachments/assets/dc3645d7-b2f8-4cad-9659-08a5c7043f47)
+
 
 
 
