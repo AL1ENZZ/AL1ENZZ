@@ -8,6 +8,12 @@ just please refrain from copying or recreating everything
 
 to the point where it's my exact skin, thank you!
 
+- SHIPS DNI
+
+I love ships!
+
+But I don't like immitating those ships unless it's with my partner!
+
 
 
 
