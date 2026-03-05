@@ -17,8 +17,9 @@ to the point where it's my exact skin, thank you!
 - SHIPS
 
 I love ships!
+But I don't like immitating those ships unless
 
-But I don't like immitating those ships unless it's with my partner!
+it's with my partner!
 
 
 
