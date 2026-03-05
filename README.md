@@ -21,7 +21,7 @@ I love ships!
 
 But I don't like doing Ship stuff with strangers
 
-I only feel confortable doing Ships with my Partner!
+I only feel comfortable doing Ships with my Partner!
 
 
 
