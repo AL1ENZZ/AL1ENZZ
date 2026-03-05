@@ -4,7 +4,8 @@
 
 - Ispiration of my skins in totally okay!
 
-just please refrain from copying or recreating everything to the point where it's my exact skin
+just please refrain from copying or recreating everything
+to the point where it's my exact skin
 
 
 
