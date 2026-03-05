@@ -32,7 +32,9 @@
 
 
 
-![Compressed-Getsitecontrol (4)](https://github.com/user-attachments/assets/58ff1ac5-88ea-4c48-b675-a4b2999e6e9a)![Compressed-Getsitecontrol (2)](https://github.com/user-attachments/assets/b47a14ae-2522-4348-86cb-e34bbb5d43e7)![Compressed-Getsitecontrol (3)](https://github.com/user-attachments/assets/57477496-9752-4d40-9fa7-63a1477b6ccf)![Compressed-Getsitecontrol (5)](https://github.com/user-attachments/assets/b1a890c7-8d4d-426f-823a-880c92356b42)
+
+
+![Compressed-Getsitecontrol (4)](https://github.com/user-attachments/assets/68ec1884-0d0e-4d32-a4c1-dbb697085fe7)![Compressed-Getsitecontrol (5)](https://github.com/user-attachments/assets/6c5a530d-9644-4100-bb67-b751f48f9e2f)
 
 
 
