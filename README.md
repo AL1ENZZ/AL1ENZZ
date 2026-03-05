@@ -14,7 +14,7 @@ to the point where it's my exact skin, thank you!
 ︶︶︶જ⁀➴
 
 
-- SHIPS DNI
+- SHIPS
 
 I love ships!
 
