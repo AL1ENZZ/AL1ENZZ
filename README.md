@@ -6,7 +6,7 @@
 
 just please refrain from copying or recreating everything
 
-to the point where it's my exact skin
+to the point where it's my exact skin, thank you!
 
 
 
