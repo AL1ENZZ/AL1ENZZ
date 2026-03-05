@@ -26,7 +26,7 @@ I only feel comfortable doing Ships with my Partner!
 
 
 
-![ducks-good-omens](https://github.com/user-attachments/assets/9489f367-f61b-4a61-8e41-e4115e8614f6)![tumblr_5e9b959089c9d7a9bb489c2a79c67ff6_d36ab89b_500](https://github.com/user-attachments/assets/b8810548-6750-4481-86c8-1ec44846d056)
+![ducks-good-omens](https://github.com/user-attachments/assets/9489f367-f61b-4a61-8e41-e4115e8614f6)![200](https://github.com/user-attachments/assets/0a39055d-6f9a-47f2-9fad-a65d608ce3d4)
 
 
 ![ffsd](https://github.com/user-attachments/assets/a94cbde9-91f5-4dd1-88e0-8b2bba230e7e)![tumblr_36233062ca540ca0c76437fe61a2191b_9d6e085c_250](https://github.com/user-attachments/assets/01b54629-d085-4a12-953a-1d7e87a5112b)
