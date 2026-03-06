@@ -44,7 +44,7 @@ ToughLuck![tumblr_19574dffb41109250f74b74af9e5b3de_a16a7b2f_75](https://github.c
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(from, Forsaken)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ(from, Deltarune)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(from, Forsaken)ㅤㅤㅤㅤㅤㅤㅤㅤ(from, Deltarune)
 
 
 
