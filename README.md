@@ -34,8 +34,9 @@
 ㅤㅤㅤ![tumblr_e9ee0c421a5542f2330d2ff5485b6732_0f608782_75](https://github.com/user-attachments/assets/5f50888a-3608-41eb-8909-36558efb7b51)
 RadioRose![tumblr_f8030fe4fbe70369fa26c5c82038ae22_b4e36e9e_75](https://github.com/user-attachments/assets/7fa2b7ac-c870-4a64-bf5e-7744c15a1455)
 
-![tumblr_19574dffb41109250f74b74af9e5b3de_a16a7b2f_75](https://github.com/user-attachments/assets/d5c1248b-f5c2-40be-a498-3ba3a7b25bb5)
-ToughLuck![tumblr_acd43b1dbb825d6d96228c095370c73a_a23b7118_75](https://github.com/user-attachments/assets/8a374455-b857-4ded-8609-fdf953b97dc6)
+ㅤㅤㅤ![tumblr_acd43b1dbb825d6d96228c095370c73a_a23b7118_75](https://github.com/user-attachments/assets/dc4ad816-05da-4c84-9418-4add926a4977)
+ToughLuck![tumblr_19574dffb41109250f74b74af9e5b3de_a16a7b2f_75](https://github.com/user-attachments/assets/848aa498-7fad-4627-996a-a61f0066a594)
+
 
 
 
