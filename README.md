@@ -49,7 +49,8 @@ ToughLuck![tumblr_19574dffb41109250f74b74af9e5b3de_a16a7b2f_75](https://github.c
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-sdffsd
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤANYTHING ELSE ![tumblr_063b2981f12056ddb1b4e2f07e7a598c_2c8f7843_75](https://github.com/user-attachments/assets/b2b43090-92de-496e-a417-a81cae073e9e)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI have a Straw.Page and a Carrd you can visit!
 
 
 ㅤ![tumblr_2cb54b1ff4866e52178a971a0bcdb17c_1c507972_100](https://github.com/user-attachments/assets/2bea7a82-0f7d-4f42-9694-eedc7611fdd8)![tumblr_945ac86f87ebb54f47abdf033b630927_30ce99a7_100](https://github.com/user-attachments/assets/88de3c75-bdf0-425c-ad57-6c3b78b44e06)![tumblr_0f2ba1cbb16985964e03847f3a330dc8_28a4fa65_100](https://github.com/user-attachments/assets/06c4850c-277f-4466-8eba-9289364d4702)![tumblr_1f2418ab4c9905ca45734cc17d5a9441_989a26d4_100](https://github.com/user-attachments/assets/2e9de59c-7b7c-4979-b2ed-4821f267a3a2)![tumblr_2fd847cf98d056039a97bdb31626632b_44452d8e_100](https://github.com/user-attachments/assets/96e7ea05-b691-4227-8376-4af7268fb87b)![tumblr_c14d9d5b6679c7dbe963f11b565e776d_6137231f_100](https://github.com/user-attachments/assets/1c9471a1-7022-4d37-9f5c-b1f8266733b2)![tumblr_c2d22802c68186e126282c1722a21167_7717d904_100](https://github.com/user-attachments/assets/9cd8c969-9182-4588-a811-a2f1eb2e5ae1)![tumblr_2d7af8d6c6fa96d2cde0d32ebdf4c3ed_a5108143_100](https://github.com/user-attachments/assets/40c218dc-d848-4e5a-8146-0c5222d05824)
