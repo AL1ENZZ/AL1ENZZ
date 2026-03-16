@@ -3,20 +3,20 @@
 
 ![Compressed-Getsitecontrol (1)](https://github.com/user-attachments/assets/5f897edd-41bd-46d5-a3d9-9587adb6bb0a)
 ![tumblr_21f01da9533e64ae17e1169b414a4aff_3bc50366_400](https://github.com/user-attachments/assets/2cddc43c-0384-490b-b19a-685143d6b484)![Compressed-Getsitecontrol](https://github.com/user-attachments/assets/239c995e-f166-4ae3-bea5-faaf3c810511)
+</div>
 
 
 
 
 
-
-
+<div align="center">
 INSPIRATION  ![tumblr_6e4c106a9af898409d18aa10eb672d35_c6a59559_75](https://github.com/user-attachments/assets/012e3dbb-d9e4-4f42-a1d5-21fb5a9ae60c)
 
 You can take inspiration of my skins!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 just please refrain from copying or recreating everythingㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 to the point where it's my exact skinㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 thank you!
-
+</div>
 ㅤ
 ㅤㅤㅤ
 
