@@ -62,4 +62,4 @@ ToughLuck![tumblr_19574dffb41109250f74b74af9e5b3de_a16a7b2f_75](https://github.c
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤYes, I'm autistic about this show.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalso my Github looks fucked up on Mobile, best viewed on PC!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalso my Github looks fucked up on Mobile, best viewed on PC!
