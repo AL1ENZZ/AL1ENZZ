@@ -45,9 +45,12 @@ ToughLuck![tumblr_19574dffb41109250f74b74af9e5b3de_a16a7b2f_75](https://github.c
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="32" height="32" alt="tumblr_cc264fce8cb2acbbf592123e72fe868b_c28e1721_75" src="https://github.com/user-attachments/assets/eb213f62-b237-4d89-a80a-cbc5a5312c2c" />BunnyDoll<img width="20" height="20" alt="tumblr_961ef66cc8426ce651f0ff684a87498d_d38425b3_75" src="https://github.com/user-attachments/assets/cfaa30cd-5fe6-4112-b1d2-c8c7ee0ba3a9" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="32" height="32" alt="tumblr_cc264fce8cb2acbbf592123e72fe868b_c28e1721_75" src="https://github.com/user-attachments/assets/eb213f62-b237-4d89-a80a-cbc5a5312c2c" />BunnyDoll<img width="20" height="20" alt="tumblr_961ef66cc8426ce651f0ff684a87498d_d38425b3_75" src="https://github.com/user-attachments/assets/cfaa30cd-5fe6-4112-b1d2-c8c7ee0ba3a9" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="20" height="20" alt="tumblr_4c587e5a0be363e599cb0d23998dec41_71aa8813_75" src="https://github.com/user-attachments/assets/8dfe7a3c-f4d1-4208-972f-7b3c72fe925c" />
+ Guns&Roses / Blellow <img width="20" height="20" alt="tumblr_d372e046a628c2cc84122a36b5b81c0a_af9030fe_75" src="https://github.com/user-attachments/assets/fe845862-c020-4c94-a08a-047a37c7b840" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(from, The Amazing Digital Circus)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(from, The Amazing Digital Circus)ㅤㅤㅤㅤㅤㅤ(from, Deltarune)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
